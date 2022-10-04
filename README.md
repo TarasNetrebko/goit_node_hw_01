@@ -3,6 +3,6 @@ https://monosnap.com/file/BcKbh89MS6wq7ZAQZAT4Vlak7CscRu
 https://monosnap.com/file/AXT8l5lPwohoacpG16Gf7ruW06uF0x
 https://monosnap.com/file/YoBLmejQm6ZvVI6jGH0AZqvYzhuDa3
 
-Після всіх операцій таьлиця контактів:
+Після всіх операцій таблиця контактів:
 
 https://monosnap.com/file/mCLXfdAcphO4eJgaPkaphUj4RVzrWL
